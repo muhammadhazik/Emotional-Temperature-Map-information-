@@ -1,0 +1,1 @@
+# Emotional-Temperature-Map-information-
